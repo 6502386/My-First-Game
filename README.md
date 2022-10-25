@@ -1,3 +1,3 @@
 # My-First-Game
-hee hee /n
+hee hee 
 สวัสดีจ้า
